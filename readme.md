@@ -5,3 +5,4 @@ They all grew up with the story of this monster wth huge toothes.
 The first was reckless.
 The second was brave.
 But the third was fearful.
+(Without fault)
